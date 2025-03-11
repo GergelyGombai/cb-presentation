@@ -1,1 +1,1 @@
-Ez egy iskolai prez
+Ez egy iskolai prezentáció
