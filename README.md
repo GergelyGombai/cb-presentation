@@ -1,0 +1,1 @@
+Ez egy iskolai prez
